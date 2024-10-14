@@ -1,0 +1,1 @@
+# education: Lexington Christian Academy
